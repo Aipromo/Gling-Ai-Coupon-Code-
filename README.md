@@ -3,7 +3,7 @@
 ## **Introduction**  
 In today's fast-paced digital world, content creators, YouTubers, and marketers need efficient tools to streamline their workflow. One of the biggest challenges in video production is editing—cutting out silences, removing filler words, and ensuring smooth transitions. **Gling AI** is an innovative artificial intelligence-powered tool designed to automate and simplify video editing, saving creators hours of manual work.  
 
-[💰 Click Here and Get 70% OFF Discount Now 💰 ](https://gling.ai/?via=muhammad-bilal)
+[💰 Click Here and Get 70% OFF Discount Now 💰 ]https://gling.ai/?via=amir-sohail
 
 This article explores **what Gling AI is, how it works, its key features, benefits, pricing, and why it’s a game-changer for video creators.**  
 
@@ -12,7 +12,7 @@ This article explores **what Gling AI is, how it works, its key features, benefi
 ## **What is Gling AI?**  
 Gling AI is an **AI-powered video editing assistant** that automatically cuts out silences, filler words (like "um," "uh"), and repetitive phrases from raw footage. It uses advanced speech recognition and machine learning to analyze audio and generate a polished, professional edit in minutes.  
 
-[💰 Click Here and Get 70% OFF Discount Now 💰](https://gling.ai/?via=muhammad-bilal) 
+[💰 Click Here and Get 70% OFF Discount Now 💰]https://gling.ai/?via=amir-sohail
 
 Unlike traditional video editing software (like Adobe Premiere Pro or Final Cut Pro), Gling AI **focuses on automating the tedious parts of editing**, allowing creators to focus on storytelling and content creation.  
 
@@ -26,7 +26,7 @@ Gling AI leverages **natural language processing (NLP) and AI algorithms** to:
 3. **Generate Smooth Cuts** – Creates seamless transitions between sentences.  
 4. **Export Edits** – Provides a clean, edited version ready for final touches in any video editor.  
 
-[💰 Click Here and Get 70% OFF Discount Now 💰 ](https://gling.ai/?via=muhammad-bilal)
+[💰 Click Here and Get 70% OFF Discount Now 💰 ]https://gling.ai/?via=amir-sohail
 
 ### **Step-by-Step Process:**  
 1. **Upload** your raw video or audio file.  
