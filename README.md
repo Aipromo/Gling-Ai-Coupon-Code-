@@ -86,7 +86,7 @@ Gling offers flexible pricing plans:
 - **Pay-as-you-go** – Affordable per-minute pricing.  
 - **Subscription Plans** – Unlimited edits for heavy users.  
 
-*https://gling.ai/?via=muhammad-bilal for the latest pricing.)*  
+https://gling.ai/?via=amir-sohail for the latest pricing.)*  
 
 ---
 
@@ -108,7 +108,7 @@ Gling offers flexible pricing plans:
 While it doesn’t replace full-fledged video editors, it **handles the most tedious part of editing**, allowing creators to focus on storytelling and engagement.  
 
 ### **Try Gling AI Today!**  
-👉 https://gling.ai/?via=muhammad-bilal
+👉 https://gling.ai/?via=amir-sohail
 
 ---
 
